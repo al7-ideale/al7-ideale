@@ -1,1 +1,1 @@
-Hey! It's me Aadarsh (Computer Geek)
+Hey! It's me Aadarsh
